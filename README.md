@@ -1,1 +1,1 @@
-![Ghost Of Sparta](./wallpaperflare.com_wallpaper.jpg)
+![Ghost Of Sparta](./Ghost_Of_Sparta.jpg)
